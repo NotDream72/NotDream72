@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @NotDream72
 - 🌱 Just a noob who got on GitHub in June 2021 
+- Also a noob dun mind me
